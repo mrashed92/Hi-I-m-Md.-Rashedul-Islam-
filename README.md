@@ -52,3 +52,10 @@ I focus on helping e-commerce brands **increase product visibility, optimize mar
 ## Education
 
 🎓 **Bachelors in Marketing**
+
+
+## 📫 Contact & Connect
+
+- 📧 **Email:** [mdrashed92@gmail.com](mailto:mdrashed92@gmail.com)
+- 💼 **Upwork:** [View My Upwork Profile](https://www.upwork.com/freelancers/~01873e4ab013b5feb9)
+- 🔗 **LinkedIn:** [Connect with Me on LinkedIn](https://www.linkedin.com/in/mrashed92/)
